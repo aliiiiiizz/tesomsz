@@ -1,0 +1,1 @@
+najo dezi kifele!
